@@ -1,3 +1,0 @@
-WE
-EATIN
-BoYZ
